@@ -1,0 +1,2 @@
+# monstadata
+komik ikhsan damasraya
